@@ -1,13 +1,12 @@
+₊˚ʚ . ᵎᵎ₊ ⊹ ‧˚💉⋆.WELCOME˚₊ ⊹🎀 ୭ ˚. ᵎᵎ˚˖𓍢ִ໋
 
-₊˚ʚ . ᵎᵎ₊ ⊹ ‧˚💉⋆.WELCOME˚₊ ⊹🎀 ୭ ˚. ᵎᵎ
-
-˚˖𓍢ִ໋🌷͙֒✧ Hi, I’m @valexyy :)
-˚˖𓍢ִ໋🌷͙֒✧ I’m interested in horror games, cutecore, dank art, memes 
-˚˖𓍢ִ໋🌷͙֒✧ I’m currently learning how to make games  
-˚˖𓍢ִ໋🌷͙֒✧ I’m looking to collaborate on horror indie games 
-˚˖𓍢ִ໋🌷͙֒✧ How to reach me/Ig: @valexydoesart/
-˚˖𓍢ִ໋🌷͙֒✧Pronouns: she/her 
-˚˖𓍢ִ໋🌷͙֒✧ Fun fact: im dumb
+1. ˚˖𓍢ִ໋🌷͙֒✧ Hi, I’m @valexyy :)
+2. ˚˖𓍢ִ໋🌷͙֒✧ I’m interested in horror games, cutecore, dank art, memes 
+3. ˚˖𓍢ִ໋🌷͙֒✧ I’m currently learning how to make games  
+4. ˚˖𓍢ִ໋🌷͙֒✧ I’m looking to collaborate on horror indie games 
+5. ˚˖𓍢ִ໋🌷͙֒✧ How to reach me/Ig: @valexydoesart/
+6. ˚˖𓍢ִ໋🌷͙֒✧Pronouns: she/her 
+7. ˚˖𓍢ִ໋🌷͙֒✧ Fun fact: im dumb
   
 
 <!---
